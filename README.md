@@ -1,2 +1,2 @@
-# scriptgrobal
-arthur tech esteve aqui rsrsrs
+# SCRIPT GROBAL - ECO HUB
+ARTHUR TECH ESTEVE AQUI...
